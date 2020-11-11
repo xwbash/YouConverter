@@ -7,8 +7,8 @@
 
 *** If you have any question ask me on instagram; yigitaydn.py ****</br>
 > ***YOU CONVERTER*** </br> 
-[![ezgif.com-gif-makerdaab886bbed38c47.md.gif](https://s8.gifyu.com/images/ezgif.com-gif-makerdaab886bbed38c47.md.gif)](https://gifyu.com/image/iKJj) </br>
+![](https://hizliresim.com/l932gv) </br>
 
 *** Eğer ki bir sorunuz olursa instagram; yigitaydn.py ****</br>
 > ***YOU CONVERTER*** </br> 
-[![ezgif.com-gif-makerdaab886bbed38c47.md.gif](https://s8.gifyu.com/images/ezgif.com-gif-makerdaab886bbed38c47.md.gif)](https://gifyu.com/image/iKJj) </br>
+![](https://hizliresim.com/l932gv) </br>
